@@ -1,4 +1,4 @@
 # fjfjf #
 >kfkfk
 >>vlozhenie
-+provodnik
++ provodnik
